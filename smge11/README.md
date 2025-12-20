@@ -1,7 +1,7 @@
-it's probably just Charlotte calling,
+It's a siren, your brain knows what's up
 
-Best go to her quick, she'll get mad if she catches you stalling,
+you should run awy, lest you be forced to pucker up
 
-she's in the next room, the door is ajar,
+YOU CAN ESCAPE IF YOU RUN **NOW**
 
-get your present with the code [b5b5ygrr](https://altasche.github.io/Digital-Unwrapping/b5b5ygrr)
+the path to the exit uses code [12345POW](https://altasche.github.io/Digital-Unwrapping/12345POW/)

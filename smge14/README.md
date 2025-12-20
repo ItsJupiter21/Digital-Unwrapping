@@ -1,7 +1,7 @@
-it's probably just Charlotte calling,
+The song pierces your ear
 
-Best go to her quick, she'll get mad if she catches you stalling,
+And your blood curdles in fear
 
-she's in the next room, the door is ajar,
+lure of the siren is too strong
 
-get your present with the code [b5b5ygrr](https://altasche.github.io/Digital-Unwrapping/b5b5ygrr)
+you are either attracted or frozen in place both options are wrong [be4u4tsq](https://altasche.github.io/Digital-Unwrapping/be4u4tsq/)

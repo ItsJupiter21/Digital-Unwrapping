@@ -11,4 +11,5 @@ Roll perception:
 if you roll high enough, you might even notice deception
 
 your next code is
-smde + the number you roll(01-20)
+smge + the number you roll(01-20)
+For example [https://altasche.github.io/Digital-Unwrapping/smge00/](https://altasche.github.io/Digital-Unwrapping/smge00/)
