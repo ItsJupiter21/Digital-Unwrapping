@@ -1,14 +1,14 @@
 # The beginning
 
-**Hell**o, as you can see, there are a lot of codes,
+**Hell**o, you're probably expecting a poem
 
-To get where you need to be, there are many roads,
+I'll give you something different, a couple of ways to Rome
 
-add an 8 digit code to the end of the URL to start,
+there's 8 digit codes at the end of all URLs,
 
-you'll get there don't worry, you're pretty smart.
+to find the correct one, there are no proper spells,
 
-an 8 digit code that's hard to guess, you might think,
+an 8 digit code is hard to guess, you might think,
 
 don't worry I got you, here's the first link:
 
