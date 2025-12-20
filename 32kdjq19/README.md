@@ -1,14 +1,18 @@
-# Something's very wrong
+# Congratulations!
 
-You're walking through an abandoned house,
+Just kidding!
 
-when you hear an eerie song,
+This challenge is way more forbidding,
 
-suddenly everything falls quiet as a mouse.
+Now the road forks, and you must choose,
 
-Roll perception:
+you're being chased by orcs, so put on your running shoes!
 
-if you roll high enough, you might even notice deception
+![Orcs:](https://tolkiengateway.net/w/images/thumb/a/a3/John_Howe_-_In_Mordor.jpg/1200px-John_Howe_-_In_Mordor.jpg)
 
-your next code is
-smde + the number you roll(01-20)
+You could go left, and hide in the mines, a3brp145
+
+Or go right, and hide in a forest full of Vines, tv5703ea
+
+P.S. you have to enter the codes manually now
+it'll take longer, but you'll get there somehow

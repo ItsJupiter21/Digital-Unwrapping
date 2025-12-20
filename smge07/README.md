@@ -1,7 +1,5 @@
-it's probably just Charlotte calling,
+Something is definitely wrong
 
-Best go to her quick, she'll get mad if she catches you stalling,
-
-she's in the next room, the door is ajar,
+but you are not strong enough to resist the song
 
 get your present with the code [b5b5ygrr](https://altasche.github.io/Digital-Unwrapping/b5b5ygrr)
