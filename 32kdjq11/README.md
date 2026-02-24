@@ -12,4 +12,4 @@ if you roll high enough, you might even notice deception
 
 your next code is
 smge + the number you roll(01-20)
-For example [https://altasche.github.io/Digital-Unwrapping/smge00/](https://altasche.github.io/Digital-Unwrapping/smge00/)
+For example [https://itsjupiter21.github.io/Digital-Unwrapping/smge00/](https://itsjupiter21.github.io/Digital-Unwrapping/smge00/)
